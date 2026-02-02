@@ -1,0 +1,1 @@
+# szpc-fundo-magico
